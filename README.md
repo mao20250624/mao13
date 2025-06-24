@@ -21,7 +21,7 @@
 
 点击访问：<a href="https://aw3-01.pages.dev/">暗网爆料社区</a>
 
-点击访问：<a href="https://hls-15.pages.dev/">黑料社</a>
+点击访问：<a href="https://pi009.pages.dev/">58吃瓜</a>
 
 点击访问：<a href="https://hl381.pages.dev/">黑料大事记</a>
 
